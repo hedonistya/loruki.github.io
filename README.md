@@ -1,2 +1,2 @@
 # loruki.github.io
-https://marcellogiovanni.github.io/loruki.github.io/
+https://nikitatopolskov.github.io/loruki.github.io/
